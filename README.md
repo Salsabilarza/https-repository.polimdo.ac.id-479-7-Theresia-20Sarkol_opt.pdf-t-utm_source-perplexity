@@ -1,0 +1,1 @@
+# https-repository.polimdo.ac.id-479-7-Theresia-20Sarkol_opt.pdf-t-utm_source-perplexity
